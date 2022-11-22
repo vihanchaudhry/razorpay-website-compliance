@@ -1,3 +1,5 @@
+# Privacy Policy
+
 #### *Last updated on Nov 22nd 2022*
 
 This privacy policy sets out how Vihan Chaudhry uses and protects any information that you give Vihan Chaudhry when you use this website.

@@ -1,3 +1,5 @@
+# Cancellation & Refund Policy
+
 #### *Last updated on Nov 22nd 2022*
 
 Vihan Chaudhry believes in helping its customers as far as possible, and has therefore a liberal cancellation policy. Under this policy:
